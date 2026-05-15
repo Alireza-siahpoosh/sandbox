@@ -2,6 +2,30 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-15 16:30 (IR Time)
+- 📥 [python 1402 _PyPackage.part2.z01](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z01) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z02](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z02) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z03](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z03) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z04](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z04) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z05](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z05) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z06](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z06) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z07](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z07) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z08](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z08) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z09](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z09) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z10](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z10) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z11](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z11) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z12](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z12) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z13](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z13) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z14](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z14) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z15](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z15) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z16](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z16) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z17](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z17) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z18](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z18) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z19](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z19) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z20](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z20) `95.00 MB`
+- 📥 [python 1402 _PyPackage.part2.z21](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.z21) `95.00 MB`
+- 🗜️ [python 1402 _PyPackage.part2.zip](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/python%201402%20_PyPackage.part2.zip) `4.32 MB`
+
 ### 📅 2026-05-15 12:16 IR
 - 📥 [25](https://github.com/Alireza-siahpoosh/sandbox/raw/main/dl/25) `36KB`
 
